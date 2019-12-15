@@ -1,2 +1,2 @@
-# Syarat-Final
-website terbaru nya
+# website-baru
+syarat final, aplikom
